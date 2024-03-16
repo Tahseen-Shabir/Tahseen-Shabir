@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate just reach me once.
 - 📫 How to reach me via intagram ( tahseen_shabir01) 
-- 😄 Pronouns: Teh-seen
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: If you just stalk that will be funny.
 
 <!---
